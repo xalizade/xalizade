@@ -3,7 +3,7 @@
 <h3 align="center">📊 Aspiring Data Analyst | 🔍 Unlocking Insights from Data | 🌟 Passionate About Growth and Learning</h3>
 <img align="right" alt="Coding" width="400" src="https://media.tenor.com/IF2JdxzmyN4AAAAj/coding-girl.gif">
 
--Know about my experiences [https://drive.google.com/file/d/18S8MM1PGxCnevFRJdgLXhvDmSVYC_o43/view?usp=sharing](https://drive.google.com/file/d/1wToxd01sfVOdu3W5WY8qi5AcPdi3XB4e/view?usp=sharing)
+-Know about my experiences [https://drive.google.com/file/d/1wToxd01sfVOdu3W5WY8qi5AcPdi3XB4e/view?usp=sharing](https://drive.google.com/file/d/1D0Gjgquy74AIaawu6yj5ySfr__X6lLf2/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
